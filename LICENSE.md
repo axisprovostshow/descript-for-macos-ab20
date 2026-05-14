@@ -1,4 +1,4 @@
-# 
+# Descript for macOS exclusive Effect: collaboration-tools & audio-cleanup is the best Descript for macOS effect, featuring collaboration-tools and audio-cleanup. Safe, efficient,
 
 
 
